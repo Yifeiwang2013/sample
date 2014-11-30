@@ -5,7 +5,7 @@ lskdfjlk
 =====================
 
 
-
+how do we solve confilt?
 dadsjfjfekslafejkwkvjw
 dsafjje
 new sampleDSAKJFJ]
@@ -23,7 +23,6 @@ SAF
 
 SDAF
 network demo
-
 
 =====================
 
