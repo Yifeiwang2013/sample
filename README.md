@@ -5,11 +5,10 @@ lskdfjlk
 =====================
 
 
-
+how do we solve confilt?
 dadsjfjfekslafejkwkvjw
 dsafjje
-new sample
-network demo
+Show some confilts
 
 
 =====================
